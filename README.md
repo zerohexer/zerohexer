@@ -1,5 +1,5 @@
 # Me
-Super chill guy , I reject bad emotion xd.
+Super chill guy.
 
 Current Goal :
 
